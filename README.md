@@ -13,3 +13,5 @@ Time for some more commits:
 Ready for some music now?  You'd better be!
 
 ![Journey!](https://upload.wikimedia.org/wikipedia/en/f/f8/Jfrontiers.jpg)
+
+![Billy Idol...!](http://billyidol.net/wp-content/uploads/2014/08/idolize-yourself1.jpg)
