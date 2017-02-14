@@ -17,6 +17,9 @@ Ready for some music now?  You'd better be!
 
 ![Def Leppard, Pyromania baby!](https://upload.wikimedia.org/wikipedia/en/a/a7/Def_Leppard_-_Pyromania.jpg)
 
+One of these doesn't look like the others...!
+![Who are we?](https://upload.wikimedia.org/wikipedia/en/f/f5/Tears_for_Fears_Songs_from_the_Big_Chair.jpg)
+
 
 ![Billy Idol...!](http://billyidol.net/wp-content/uploads/2014/08/idolize-yourself1.jpg)
 
