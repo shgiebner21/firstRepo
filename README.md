@@ -19,4 +19,3 @@ Ready for some music now?  You'd better be!
 
 
 ![Billy Idol...!](http://billyidol.net/wp-content/uploads/2014/08/idolize-yourself1.jpg)
->>>>>>> 9edfa16b8f3907a7c05621ab19e58a1a4a3d7e7c
