@@ -13,3 +13,5 @@ Time for some more commits:
 Ready for some music now?  You'd better be!
 
 ![Journey!](https://upload.wikimedia.org/wikipedia/en/f/f8/Jfrontiers.jpg)
+
+![Def Leppard, Pyromania baby!](https://upload.wikimedia.org/wikipedia/en/a/a7/Def_Leppard_-_Pyromania.jpg)
